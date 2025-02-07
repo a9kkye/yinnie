@@ -1,10 +1,6 @@
 
-Yinnie,  
+Most days I wish I'd never met you 'cause then I could sleep at night
 
-I might not be at Micheal Reeves level coding (yet) but i can code now (kind of)
+I didn't have to walk around around with the knowledge that there was someome like you out there.
 
-love everything you were,  
-love who you are,  
-and love everything you are becoming.  
-
-See you later alligator.
+I love you yinnie
